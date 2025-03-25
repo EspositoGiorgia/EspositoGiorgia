@@ -2,4 +2,4 @@
 - 👀 I’m interested in Web3, Blockchain, and anything social media related within the gaming industry
 - 🌱 I’m currently learning Javascript
 - 📩 giorgiaesposito.smm@gmail.com
-- ⚡ Fun fact: I'm a co-founder to a marketing agency
+- ⚡ Fun fact: I'm a co-founder of a marketing agency
